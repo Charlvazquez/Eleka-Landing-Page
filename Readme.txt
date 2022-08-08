@@ -1,3 +1,8 @@
+you can visit the page on :
+
+https://oncologicos.com.mx/Elekta/index.php
+
+
 Thanks for downloading this template!
 
 Template Name: Scaffold
